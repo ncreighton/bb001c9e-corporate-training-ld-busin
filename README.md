@@ -1,0 +1,2 @@
+# bb001c9e-corporate-training-ld-busin
+You've got the training expertise—but not the roadmap to turn it into a profitable business. Most L&amp;D professionals launch training companies without a validated business model, leaving money on the table and strategy in the dark.  The Corporate Training &amp; L&amp;D Business Plan and Strategy Template Pack gives you a complete, battle-tested blueprint to
